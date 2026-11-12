@@ -7,4 +7,4 @@
 <img width="314" height="14" alt="image" src="https://github.com/user-attachments/assets/25e0ac99-6b2a-4079-8081-a3a8fff1f97c" />
 
 
-[ꜱɪɢɴ ᴍʏ ᴀᴛᴀ ˙ᵕ˙](https://miikering.atabook.org)
+[ꜱɪɢɴ ᴍʏ ᴀᴛᴀ](https://miikering.atabook.org)
