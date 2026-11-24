@@ -8,5 +8,7 @@
 
 <img width="284" height="16" alt="image" src="https://github.com/user-attachments/assets/cda2b53c-24e6-44f0-b9a3-66aabacbff61" />
 
+<img width="257" height="14" alt="image" src="https://github.com/user-attachments/assets/9843ef82-c7ba-42b6-b0ee-f1b202439129" />
+
 
 [ꜱɪɢɴ ᴍʏ ᴀᴛᴀ](https://miikering.atabook.org)
